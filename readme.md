@@ -1,1 +1,1 @@
-Hier fliegt die hellblaue Ackerhummel mit rosa Raktentreibstoff rum
+Hier fliegt die hellblaue Ackerhummel mit rosa Raketentreibstoff rum
